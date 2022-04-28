@@ -2,3 +2,7 @@
 
 ex. 5
 Hello, this is Febe
+    O
+      o 
+(^_^)°
+/|||\
